@@ -11,3 +11,7 @@
 - 1 dash of salt
 - 170 g of rape oil
 - 2 glasses of cherries (sour), 350 g each
+
+## How to:
+
+1. heat the oven to 170 °C
