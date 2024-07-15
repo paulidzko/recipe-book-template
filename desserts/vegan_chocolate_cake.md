@@ -15,3 +15,4 @@
 ## How to:
 
 1. heat the oven to 170 °C
+2. butter the forms & let the cherries dry a little
