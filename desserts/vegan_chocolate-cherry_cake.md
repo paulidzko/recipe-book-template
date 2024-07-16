@@ -15,3 +15,7 @@
 ## How to:
 
 1. heat the oven to 170 °C
+2. butter the forms & let the cherries dry a little
+3. mix all dry ingedients
+4. then add oil and 50 mL cherry juice
+5. bake until finished. 170 to 190 °C
