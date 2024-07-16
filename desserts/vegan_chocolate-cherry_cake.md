@@ -4,15 +4,15 @@
 ## Ingredients
 
 - 450 g flour
-- 360 g suggar
+- 360 g sugar
 - 70 g cacao
 - 1 pack of baking pulver
-- 2 packs of vanilla suggar
+- 2 packs of vanilla sugar
 - 1 dash of salt
 - 170 g of rape oil
 - 2 glasses of cherries (sour), 350 g each
 
-## How to:
+## Instructions
 
 1. heat the oven to 170 °C
 2. butter the forms & let the cherries dry a little
