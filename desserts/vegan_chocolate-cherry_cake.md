@@ -19,3 +19,7 @@
 3. mix all dry ingedients
 4. then add oil and 50 mL cherry juice
 5. bake until finished. 170 to 190 °C
+
+## Tipp
+
+Like always: tastes better with a lining of chocolate.
