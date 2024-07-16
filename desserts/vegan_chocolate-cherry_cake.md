@@ -22,4 +22,4 @@
 
 ## Tipp
 
-Like always: tastes better with a lining of chocolate.
+Like always: tastes better with a coating of chocolate.
